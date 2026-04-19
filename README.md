@@ -44,4 +44,4 @@ Abe Simpson belongs to Matt Groening / Fox / Disney / whoever owns The Simpsons 
 
 ---
 
-*Please don't take this seriously. You should not be business decisions based on a cartoon grandpa.*
+*Please don't take this seriously. You should not be making business decisions based on a cartoon grandpa.*
